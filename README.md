@@ -2,9 +2,10 @@
 
 ## 🚀 Introdução
 
-> Woooow! Look at this 👀
+> Vem comigo espiar esse conteúdo 👀
 
-Olá pessoal, Venilton da DIO aqui! Inspirado na hype _"Natty or Not"_ do fisiculturismo, este Lab da DIO te convida a conhecer o mundo das IAs Generativas, explorando o potencial dessas tendências tecnológicas incríveis!
+Olá pessoal, Anarquias passando aqui! Inspirado na hype _"Natty or Not"_ do fisiculturismo,
+
 
 ## 🎯 Bora Pro Desafio!? Você Já Venceu 💪🤓
 
